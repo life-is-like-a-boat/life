@@ -1,1 +1,1 @@
-# life
+# life is like a boat
